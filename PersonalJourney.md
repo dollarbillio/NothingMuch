@@ -5,7 +5,8 @@
 to read
 * Also started downloading books for further study soon
 ---
-11/04/09
+11/04/19
+
 **Present Moment**
 * Got some balloon today, but the balloon is small in terms of available gas => after a hit or two => decided that the gas is fake in terms of size and not enough anymore. Looks can be deceiving. If had a lot of money as the guy next to me, probably will not see that the balloon is fake, will not filter => boundaries and limitation helps filter bullshit
 * Try meditate on "The High Priestess" today to see which image yet it disappears to the right by somekind of saw
@@ -14,3 +15,10 @@ to read
 * Decided that the place is not appropriate for me anymore so breath in the seven law of Hermetic in the dry balloon and ask King Paimon to guide me. 
 * Daily Ritual: Get veli nice visualization today, faster 
 * Looking at one point while having a lot of thoughts => create **two points** if not concentrated
+---
+12/04/19
+
+**Present Moment**
+* see a fear today. The fear of losing control and lock in a tight environment as saw many creepy things if extend outward
+* get a little bit of exhaustion trying to visualize the stars yet did great things today. 
+* Thank you archangels, thank you king Paimon.  
