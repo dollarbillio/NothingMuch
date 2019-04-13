@@ -22,3 +22,14 @@ to read
 * see a fear today. The fear of losing control and lock in a tight environment as saw many creepy things if extend outward
 * get a little bit of exhaustion trying to visualize the stars yet did great things today. 
 * Thank you archangels, thank you king Paimon.  
+---
+13/04/19
+
+**Present Moment**
+* Saw that emotion that leads to wrong perception about a thing. But come back to balloon place and sit at a different direction to see from different perspectives. Emotion leads to misunderstanding
+* Break the contract with the spirits there asking the help of king Paimon and feel two spirit coming out of body
+* In order to expand, don't be afraid to step outside of comfort zone and ask. Ask one things at a time. 
+* Balloon can only act as medicine to summarise and remember many things, real progress comes from reading books 
+* Went under balloon but without question and intention, will only leads to fluctuating thoughts. 
+* Limitation leads to real progress. 
+* Thank you Saturn, thank you king Paimon, thank you archangels.
