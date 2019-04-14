@@ -33,3 +33,13 @@ to read
 * Went under balloon but without question and intention, will only leads to fluctuating thoughts. 
 * Limitation leads to real progress. 
 * Thank you Saturn, thank you king Paimon, thank you archangels.
+---
+14/04/19
+
+**Present Moment**
+* Get Saturn lesson today: the way to overcome something is to get used to it
+* Angels and Demons get their place in this world. Better know their place than banish, especially demon away. 
+* Staring at one point today and get perception distorted by the color of eyes. 
+* People who think they understand things and say it out loud are people who know least. 
+* Otherwise get very good meditation today. Thank you Saturn and king Paimon and archangels. 
+
