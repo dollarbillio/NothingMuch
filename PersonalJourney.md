@@ -42,4 +42,10 @@ to read
 * Staring at one point today and get perception distorted by the color of eyes. 
 * People who think they understand things and say it out loud are people who know least. 
 * Otherwise get very good meditation today. Thank you Saturn and king Paimon and archangels. 
+---
+15/04/19
 
+**Present Moment**
+* No more balloon. Only waste of time. Must confront fear on own and get to it physically. Anesthetics can't help
+* Don't waste time and resources in finding quick way. Must confront fear. 
+* Fear is the teacher and too much freedom creates chaos.
