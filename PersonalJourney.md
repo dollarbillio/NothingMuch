@@ -49,3 +49,9 @@ to read
 * No more balloon. Only waste of time. Must confront fear on own and get to it physically. Anesthetics can't help
 * Don't waste time and resources in finding quick way. Must confront fear. 
 * Fear is the teacher and too much freedom creates chaos.
+---
+16/04/19
+**Present Moment**
+* Surpassed laziness today to do the ritual
+* Notra dame burnt and got the Tower card in the morning
+---
