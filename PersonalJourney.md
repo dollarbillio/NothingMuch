@@ -55,3 +55,7 @@ to read
 * Surpassed laziness today to do the ritual
 * Notra dame burnt and got the Tower card in the morning
 ---
+18/04/2019
+**Present Moment**
+* Found out about reptilian brain => fear, react and lower vibration => control our mind
+* Saturn as broadcast station and Moon is not real planet and natural but could be death star and brought here in Earth to affect mind and how we perceive reality and also act as a station to instill reptilian mind onto human's brain
