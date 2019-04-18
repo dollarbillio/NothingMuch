@@ -59,3 +59,4 @@ to read
 **Present Moment**
 * Found out about reptilian brain => fear, react and lower vibration => control our mind
 * Saturn as broadcast station and Moon is not real planet and natural but could be death star and brought here in Earth to affect mind and how we perceive reality and also act as a station to instill reptilian mind onto human's brain
+* Saturn and Moon matrix. Access through Saturn cycle?. Moon and Square?
