@@ -60,3 +60,10 @@ to read
 * Found out about reptilian brain => fear, react and lower vibration => control our mind
 * Saturn as broadcast station and Moon is not real planet and natural but could be death star and brought here in Earth to affect mind and how we perceive reality and also act as a station to instill reptilian mind onto human's brain
 * Saturn and Moon matrix. Access through Saturn cycle?. Moon and Square?
+---
+19/04/2019
+**Present Moment**
+* Became overly anxious upon fear and acted as someone is to surrender. 
+* Surrender is the first instinct yet realize that and also realized that all mylife I have been bombarded with "you can't/you must" so there is not much freedom in thinking.
+* Balloon soothes the mind as a mother soothes their child. Yet when in comfort, fear and other things limitation will rise and make one to fear.
+* Been in fear so much that can't sleep. 
